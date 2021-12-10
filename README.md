@@ -1,0 +1,2 @@
+# CombiningSelfishIndividualRewardsWithIntrinsicMotivationForSynergisticTasks
+Combining Selfish Individual Rewards WithIntrinsic Motivation for Synergistic Tasks
